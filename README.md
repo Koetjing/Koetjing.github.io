@@ -1,5 +1,5 @@
 
-## I'll probably add a better theme maybe later cause I'm too lazy rn and I have exams.
+## I'll probably add a better theme later cause I'm too lazy rn and I have exams.
 #                          Book title: “All is Normal as Planned.” Author: Del (Raymond)
 
 Long ago, in the land where there is no gb in RGB, only red and white pierces the surrounding environment of everyday life.
