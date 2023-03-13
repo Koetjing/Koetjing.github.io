@@ -17,19 +17,19 @@ The Ministry of Truth is spearheaded by The Kingpin, or his mysterious real name
 In the daily propaganda broadcasts, he is only depicted by a friendly, but secretly sinister Journal of Truth, an anthropomorphic book which is the public mascot of the enigmatic Ministry of Truth.
 
 In reality, rumours circulating around “The Farms”, (factories in which aspiring students who’ve held a record of so called “bad discipline” wanders around lifelessly, only directed to blindly follow orders) whispers of a legend in which anyone who’ve witnessed this mysterious figure’s true appearance vanishes into the thin air and all the records and documents pertaining to the unfortunate person who saw him were forever struck from the record.
-———————————————————————————————————————————-—
+
 Log note: 20th May of 1984.
 Location: The Farms upon Oceania.
-—————————————————————————————————————————————
+
 “ey Brad, come here!” says Mark.
 “G’day Mark! what’s the hold up?” Brad responded.
 Mark points out to a mysterious white mist behind a packaging machine to an oblivious Brad.
 
 A bit of background. The legend of Tarson Fisk also mentions of a mist that sucks in anyone who tries to get in, and teleports them to the lair of The Kingpin. The location where the mists manifests are not known however. Since Brad was a new hire, he wasn’t aware of the legend yet, and walked to the site of this mysterious new phenomenon.
-————————————————————————————————————————————
+
 Log note: Unknown date.
 Location: Abandoned theatre at The Suburbs upon Oceania.
-————————————————————————————————————————————-
+
 “Where am I?” Brad exclaimed to the empty audience of an abandoned theatre.
 “Welcome, young one. To my humble abode.” whispered the disembodied voice.
 Brad staggered upon recognizing the tone of the voice, it was the same sound of that one friendly anthropomorphic book that he saw while lying down on his couch watching the daily propaganda broadcast.
