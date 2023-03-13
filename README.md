@@ -40,9 +40,9 @@ Brad was stunned to know that this figure was the real Kingpin and to confirm hi
 
 The figure instantaneously appeared before Brad in a flash of smoke and before Brad could even express any emotion on his face, the figure suddenly stunned Brad to unconsciousness by karate-chopping him on the nape.
 Brad woke up in an operating theater that looks like it came straight out of a sci-fi movie, and he felt his head was a lot more lighter than usual.
-He haven’t opened his eyes yet and he heard the figure yet again. “Check reflexes,” BOINK, “Ow that kinda hurts my leg joint” Brad thought in his mind.
+He haven’t opened his eyes yet and he heard the figure yet again. “Check reflexes,” BOINK, “Ow that kinda hurts my leg joint” Brad screamed inside his mind.
 
-Once he opened his eyes, he saw the Kingpin’s true forms with his other “victims” emerging from the darkness. The Mysterious Legend of Tarson Fisk had once again bamboozled Brad, since he thought that the victims of Tarson Fisk were murdered or even killed, they were instead actually just fine. Brad’s pin was also removed from his brain so he had free reign over his thoughts again.
+Once he opened his eyes, he saw the Kingpin’s true form with his other “victims” emerging from the darkness. The Mysterious Legend of Tarson Fisk had once again bamboozled Brad, since he thought that the victims of Tarson Fisk were murdered or even killed, they were instead actually just fine. Brad’s pin was also removed from his brain so he had free reign over his thoughts again.
 
 “Are you actually The Kingpin though?” Brad inquired.
 
