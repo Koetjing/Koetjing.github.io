@@ -1,5 +1,4 @@
 
-## I'll probably add a better theme later cause I'm too lazy rn and I have exams.
 #                          Book title: “All is Normal as Planned.” Author: Del (Raymond)
 # Chapter 1. The Legend of The Kingpin
 
